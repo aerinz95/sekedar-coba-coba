@@ -1,1 +1,0 @@
-sekedar coba-coba
